@@ -1,1 +1,0 @@
-# tripurwanto.github.io
